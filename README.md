@@ -22,7 +22,7 @@
 
 - 🚀 [**长桥证券（香港版）**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 港美股券商新锐（邀请码 PU3XS5）
 
-- 🚀 [**长桥证券（新加坡）**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 **身份证免存量在线直开**（邀请码 PU3XS5）
+- 🚀 [**长桥证券（新加坡）**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 **身份证免存量在线直开**（邀请码 PU3XS5）
 
 - 💹 [**众安银行（有证券）**](https://l.za.group/Ae3fR) 👈🏻 赴港后线上秒开在线银行
 
@@ -59,7 +59,7 @@
 ## ☁️ 旅行必备手机卡
 
 - 📲 [**9eSim**](https://www.9esim.com/?coupon=langke)                      👈🏻让非 eSIM 手机也能用上 eSIM
-- 🛍️ [**Tmobile prepaid **](https://www.bilibili.com/video/BV163BdY4Ehn) 👈🏻 Esim凭上述多种虚拟卡可购  遇阻私信  可5刀代劳
+- 🛍️ [**Tmobile prepaid**](https://www.bilibili.com/video/BV163BdY4Ehn) 👈🏻 Esim凭上述多种虚拟卡可购  遇阻私信  可5刀代劳
 - 🫧 **Helium Mobile**     👈🏻 Tmo网络  免费Esim  KYC可私信
 
 
