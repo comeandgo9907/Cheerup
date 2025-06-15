@@ -1,8 +1,8 @@
 
 
 ## 🎉福利链接通览 长期有效⭐️
-点击蓝色链接即可跳转💙 👈🏻
-**微信个人号：cheeruplzz**
+
+**获取优惠：点击蓝色链接   💙 👈🏻   即可跳转**
 
 
 ## 💰 跨境必备神器-大陆资料
@@ -13,6 +13,9 @@
 
 
 ## 💳 虚拟卡与加密支付
+
+受邀优惠：点击相应链接可即直达主页，绑定邀请码获得相应减免。
+
 
 - #### 💎 [**Wildcard：美区支付一网打尽  AI订阅支付专家**](https://yeka.ai/i/LANGKE)    👈🏻
   
@@ -26,29 +29,29 @@
   
 - #### 🎲 [**BybitCard：国际大所美元加密卡 自动高额反佣**](https://partner.bybit.com/b/CHEERUP)  👈🏻
 
-- #### 🌏 [**InfiniCard：费率超低加密消费卡**](https://app.infini.money/signup?ref=RGQYQQY)  👈🏻
+- #### ♻️ [**InfiniCard：费率超低加密消费卡**](https://app.infini.money/signup?ref=RGQYQQY)  👈🏻
 
 - #### 🌏 [**Myfin：非大陆资料可开电子钱包 虚拟卡很好用**](https://ref.myfin.bg/referral/invitation-link)   👈🏻
 
-受邀优惠：点击相应链接可即直达主页，绑定邀请码获得相应减免。
 
 风险提示：非必要不使用，有需求再用，永远做好“被跑路”的心理准备，短期能用，长期风险谁也防不住。
 
 
 
-## 📈 投资开户福利（高额返现奖-记得加V）最好先有外卡/港卡
+## 📈 投资开户福利
+1w块轻松赚取高额返现
+大多需要境外银行卡或账户，比如港卡
+**微信个人号：cheeruplzz**
 
-- 🐯 [**老虎证券（香港版）：一次入金达标满 10000 HKD 领见面礼**](https://tigr.link/9Aq719) 👈🏻 
+- #### 💹 [**众安银行（有证券）：赴港后线上秒开在线银行**](https://l.za.group/Ae3fR) 👈🏻 
 
-- 🚀 [**长桥证券（香港版）：港美股券商新锐（邀请码 PU3XS5）**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 
+- #### 🐯 [**老虎证券（香港版）：一次入金达标满 10000 HKD 领见面礼**](https://tigr.link/9Aq719) 👈🏻 
 
-- 🚀 [**长桥证券（新加坡）：身份证免存量在线直开（邀请码 PU3XS5）**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 
+- #### 🚀 [**长桥证券（香港版）：港美股券商新锐（邀请码 PU3XS5）**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 
 
-- 💹 [**众安银行（有证券）：赴港后线上秒开在线银行**](https://l.za.group/Ae3fR) 👈🏻 
+- #### 🚀 [**长桥证券（新加坡）：身份证免存量在线直开（邀请码 PU3XS5）**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 
 
-- 🔱 [**英皇金融（金属外汇）：高端多维度福利，信用卡买黄金！填E83OP007后加微**](https://www.empfs.com/form/bullion-personal) 👈🏻 此平台除返现外，福利较为特别，感兴趣务必联系wx。
-
-
+- #### 🔱 [**英皇金融（金属外汇）：高端多维度福利，信用卡买黄金！填E83OP007后加微**](https://www.empfs.com/form/bullion-personal) 👈🏻 此平台除返现外，福利较为特别，感兴趣务必联系wx。
 
 
 
