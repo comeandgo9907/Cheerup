@@ -25,7 +25,7 @@
   
 - #### 🕋 [**Binpay：多平台可用美元加密卡  可绑美团京东消费**](https://app.binpay.cc/pages/passport/invitation?r=101271)        👈🏻 减8刀
   
-- #### 🥗 [**Pokepay：便宜好用港币加密卡 5U带走可升级实体**](https://app.pokepay.cc/pages/invitation/regist?r=211098)     👈🏻 减2.5刀
+- #### 🥗 [**Pokepay：便宜好用港币加密卡 5U带走可升级实体**](https://app.pokepay.cc/pages/invitation/regist?r=211098)     👈🏻 5刀开卡
   
 - #### 🎲 [**BybitCard：国际大所美元加密卡 自动高额反佣**](https://partner.bybit.com/b/CHEERUP)  👈🏻 永久返佣
 
