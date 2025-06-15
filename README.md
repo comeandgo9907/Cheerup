@@ -40,20 +40,18 @@
 
 ## 📈 投资开户福利
 
-1w块轻松赚取高额返现
+- 1w块轻松赚取高额返现（大多需要境外银行卡或账户，比如港卡）
 
-大多需要境外银行卡或账户，比如港卡
-
-**微信个人号：cheeruplzz**
+- **微信个人号：cheeruplzz**
 
 - #### 💹 [**众安银行（有证券）：赴港后线上秒开在线银行**](https://l.za.group/Ae3fR) 👈🏻 
 
-- #### 🐯 [**老虎证券（香港版）：一次入金达标满 10000 HKD 领见面礼**](https://tigr.link/9Aq719) 👈🏻 
-- #### 🚀 [**长桥证券（香港版）：港美股券商新锐**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 （邀请码 PU3XS5）
+- #### 🐯 [**老虎证券香港版：一次入金达标满 10000 HKD 领见面礼**](https://tigr.link/9Aq719) 👈🏻 
+- #### 🚀 [**长桥证券香港版：港美股券商新锐**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 （邀请码 PU3XS5）
 
-- #### 🚀 [**长桥证券（新加坡）：身份证免存量在线直开**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 （邀请码 PU3XS5）
+- #### 🚀 [**长桥证券新加坡：身份证免存量在线直开**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 （邀请码 PU3XS5）
 
-- #### 🔱 [**英皇金融（金属外汇）：高端多维度福利，信用卡买黄金！受邀填E83OP007**](https://www.empfs.com/form/bullion-personal) 👈🏻 此平台除返现外，福利较为特别，感兴趣务必联系wx。
+- #### 🔱 [**英皇金融香港 金属外汇）：高端多维度福利，信用卡买黄金！受邀填E83OP007**](https://www.empfs.com/form/bullion-personal) 👈🏻 此平台除返现外，福利较为特别，感兴趣务必联系wx。
 
 
 
@@ -76,7 +74,7 @@
 ## 🎥 高质量平台超值拼车订阅出租等
 
 - ### [**银河录像局**](https://nf.video/fEczE)
-包括影音订阅、AI账号、各类工具账号的租用和拼车。例：奈飞 迪士尼 HBO；苹果 油管 spotify；GPT Claude Runway；Office/Adobe 全家桶
+- 包括影音订阅、AI账号、各类工具账号的租用和拼车。例：奈飞 迪士尼 HBO；苹果 油管 spotify；GPT Claude Runway；Office/Adobe 全家桶
 
 
 
