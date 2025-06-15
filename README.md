@@ -14,7 +14,7 @@
 
 ## 💳 虚拟卡与加密支付
 
-受邀优惠：点击相应链接可即直达主页，绑定邀请码获得相应减免。
+- 受邀优惠：点击相应链接可即直达主页，绑定邀请码获得相应减免。
 
 
 - #### 💎 [**Wildcard：美区支付一网打尽  AI订阅支付专家**](https://yeka.ai/i/LANGKE)    👈🏻减1刀
@@ -34,7 +34,7 @@
 - #### 🌏 [**Myfin：非大陆资料可开电子钱包 虚拟卡很好用**](https://ref.myfin.bg/referral/invitation-link)   👈🏻奖5欧
 
 
-风险提示：非必要不使用，有需求再用，永远做好“被跑路”的心理准备，短期能用，长期风险谁也防不住。
+- 风险提示：非必要不使用，有需求再用，永远做好“被跑路”的心理准备，短期能用，长期风险谁也防不住。
 
 
 
@@ -65,9 +65,9 @@
 
 ## ☁️ 旅行必备手机卡
 
-- 📲 [**9eSim**](https://www.9esim.com/?coupon=langke)                      👈🏻让非 eSIM 手机也能用上 eSIM
-- 🛍️ [**Tmobile prepaid**](https://www.bilibili.com/video/BV163BdY4Ehn) 👈🏻 Esim凭上述多种虚拟卡可购  遇阻私信  可5刀代劳
-- 🫧 **Helium Mobile**     👈🏻 Tmo网络  免费Esim  KYC可私信
+- #### 📲 [**9eSim**](https://www.9esim.com/?coupon=langke)                      👈🏻让非 eSIM 手机也能用上 eSIM
+- #### 🛍️ [**Tmobile prepaid**](https://www.bilibili.com/video/BV163BdY4Ehn) 👈🏻 Esim凭上述多种虚拟卡可购  遇阻私信  可5刀代劳
+- #### 🫧 **Helium Mobile**     👈🏻 Tmo网络  免费Esim  KYC可私信
 
 
 
@@ -76,10 +76,7 @@
 ## 🎥 高质量平台超值拼车订阅出租等
 
 - ### [**银河录像局**](https://nf.video/fEczE)
-
-- 影音订阅 & AI拼车 & 工具账号租用
-
-- 奈飞迪士尼HBO  苹果油管spotify；GPT Claude Runway； Office/Adobe 全家桶
+包括影音订阅、AI账号、各类工具账号的租用和拼车。例：奈飞 迪士尼 HBO；苹果 油管 spotify；GPT Claude Runway；Office/Adobe 全家桶
 
 
 
