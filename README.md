@@ -17,25 +17,25 @@
 - ### 💎 [**Wildcard**](https://yeka.ai/i/LANGKE)    👈🏻
 美区支付一网打尽  AI订阅支付专家
   
-- #### ✅ [**BIngoCard**](https://m.bebingocard.com/login?code=LANGKE)  👈🏻
+- ### ✅ [**BIngoCard**](https://m.bebingocard.com/login?code=LANGKE)  👈🏻
 虚拟美卡轻松充值  wise myfin 不在话下
   
-- #### 💵 [**THPay**](https://www.thpay.org/?channelCode=3704699)         👈🏻
+- ### 💵 [**THPay**](https://www.thpay.org/?channelCode=3704699)         👈🏻
 加密实体 U 卡取现金  轻KYC出金神器
   
-- #### 🕋 [**Binpay**](https://app.binpay.cc/pages/passport/invitation?r=101271)        👈🏻
+- ### 🕋 [**Binpay**](https://app.binpay.cc/pages/passport/invitation?r=101271)        👈🏻
 多平台可用美元加密卡  可绑美团京东消费
   
-- #### 🥗 [**Pokepay**](https://app.pokepay.cc/pages/invitation/regist?r=211098)     👈🏻
+- ### 🥗 [**Pokepay**](https://app.pokepay.cc/pages/invitation/regist?r=211098)     👈🏻
 便宜好用港币加密卡 5U带走可升级实体
   
-- #### 🎲 [**BybitCard**](https://partner.bybit.com/b/CHEERUP)  👈🏻
+- ### 🎲 [**BybitCard**](https://partner.bybit.com/b/CHEERUP)  👈🏻
 国际大所美元加密卡 自动高额反佣
 
-- #### 🌏 [**InfiniCard](https://app.infini.money/signup?ref=RGQYQQY)  👈🏻
+- ### 🌏 [**InfiniCard](https://app.infini.money/signup?ref=RGQYQQY)  👈🏻
 费率超低加密消费卡**
 
-- #### 🌏 [**Myfin：费率超低加密消费卡**](https://ref.myfin.bg/referral/invitation-link)👈🏻
+- ### 🌏 [**Myfin：费率超低加密消费卡**](https://ref.myfin.bg/referral/invitation-link)👈🏻
 费率超低加密消费卡
 
 
