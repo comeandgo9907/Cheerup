@@ -51,7 +51,8 @@
 
 - #### 🚀 [**长桥证券新加坡：身份证免存量在线直开**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 （邀请码 PU3XS5）
 
-- #### 🔱 [**英皇金融香港 金属外汇）：高端多维度福利，信用卡买黄金！受邀填E83OP007**](https://www.empfs.com/form/bullion-personal) 👈🏻 此平台除返现外，福利较为特别，感兴趣务必联系wx。
+- #### 🔱 [**英皇金融香港 金属外汇）：高端多维度福利，信用卡买黄金！受邀填E83OP007**](https://www.empfs.com/form/bullion-personal)
+- 👆🏻 此平台除返现外，福利较为特别，感兴趣务必联系wx。
 
 
 
