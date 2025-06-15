@@ -13,40 +13,38 @@
 
 
 ## 💳 虚拟卡与加密支付
+
+- 💎 [**Wildcard：美区支付一网打尽  AI订阅支付专家**](https://yeka.ai/i/LANGKE)     👈🏻 
+  
+- ✅ [**BIngoCard：虚拟美卡轻松充值  wise myfin 不在话下**](https://m.bebingocard.com/login?code=LANGKE)  👈🏻 
+  
+- 💵 [**THPay：加密实体 U 卡取现金  轻KYC出金神器**](https://www.thpay.org/?channelCode=3704699)         👈🏻 
+  
+- 🕋 [**Binpay：多平台可用美元加密卡  可绑美团京东消费**](https://app.binpay.cc/pages/passport/invitation?r=101271)        👈🏻 
+  
+- 🥗 [**Pokepay：便宜好用港币加密卡 5U带走可升级实体**](https://app.pokepay.cc/pages/invitation/regist?r=211098)     👈🏻 
+  
+- 🎲 [**BybitCard：国际大所美元加密卡 自动高额反佣**](https://partner.bybit.com/b/CHEERUP)  👈🏻 
+
+- 🌏 [**InfiniCard：费率超低加密消费卡**](https://app.infini.money/signup?ref=RGQYQQY)  👈🏻 
+
 邀请减免：点击相应链接可直达减免优惠。infini和myfin可私聊
 
 风险提示：非必要不使用，有需求再用，永远做好“被跑路”的心理准备，短期能用，长期风险谁也防不住。
 
 
-- 💎 [**Wildcard：美区支付一网打尽  AI订阅支付专家**](https://yeka.ai/i/LANGKE)     👈🏻 
-  
-- ✅ [**BIngoCard**](https://m.bebingocard.com/login?code=LANGKE)  👈🏻 虚拟美卡轻松充值  wise myfin 不在话下
-  
-- 💵 [**THPay**](https://www.thpay.org/?channelCode=3704699)         👈🏻 加密实体 U 卡取现金  轻KYC出金神器
-  
-- 🕋 [**Binpay**](https://app.binpay.cc/pages/passport/invitation?r=101271)        👈🏻 多平台可用美元加密卡  可绑美团京东消费
-  
-- 🥗 [**Pokepay**](https://app.pokepay.cc/pages/invitation/regist?r=211098)     👈🏻 便宜好用港币加密卡 5U带走可升级实体
-  
-- 🎲 [**BybitCard**](https://partner.bybit.com/b/CHEERUP)  👈🏻 国际大所美元加密卡 自动高额反佣
-
-- 🌏 [**InfiniCard**](https://app.infini.money/signup?ref=RGQYQQY)  👈🏻 费率超低加密消费卡 受邀开卡自动减3.3  限时活动加微再返5.6U
-
-
 
 ## 📈 投资开户福利（高额返现奖-记得加V）最好先有外卡/港卡
 
-- 🐯 [**老虎证券（香港版）**](https://tigr.link/9Aq719) 👈🏻 一次入金达标满 10000 HKD 领见面礼
+- 🐯 [**老虎证券（香港版）：一次入金达标满 10000 HKD 领见面礼**](https://tigr.link/9Aq719) 👈🏻 
 
-- 🚀 [**长桥证券（香港版）**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 港美股券商新锐（邀请码 PU3XS5）
+- 🚀 [**长桥证券（香港版）：港美股券商新锐（邀请码 PU3XS5）**](https://app.longbridgehk.com/ac/oa?account_channel=lb&channel=HB100002&invite-code=PU3XS5) 👈🏻 
 
-- 🚀 [**长桥证券（新加坡）**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 **身份证免存量在线直开**（邀请码 PU3XS5）
+- 🚀 [**长桥证券（新加坡）：身份证免存量在线直开（邀请码 PU3XS5）**](https://activity.lbmkt.ing/pages/longbridge/7415/index.html?app_id=longbridge&org_id=1&account_channel=lb&lang=zh-CN&channel=HB100002&invite-code=PU3XS5) 👈🏻 
 
-- 💹 [**众安银行（有证券）**](https://l.za.group/Ae3fR) 👈🏻 赴港后线上秒开在线银行
+- 💹 [**众安银行（有证券）：赴港后线上秒开在线银行**](https://l.za.group/Ae3fR) 👈🏻 
 
-- 🔱 [**英皇金融（金属外汇）**](https://www.empfs.com/form/bullion-personal) 👈🏻 高端多维度福利，信用卡买黄金！**填邀请码**（E83OP007）后加微了解。
-
-  此平台除返现外，福利较为特别，感兴趣务必联系wx。
+- 🔱 [**英皇金融（金属外汇）：高端多维度福利，信用卡买黄金！填E83OP007后加微**](https://www.empfs.com/form/bullion-personal) 👈🏻 此平台除返现外，福利较为特别，感兴趣务必联系wx。
 
 
 
