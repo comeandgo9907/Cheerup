@@ -7,9 +7,9 @@
 
 ## 💰 跨境必备神器 （大陆资料即可）
 
-## 🟢 [**Wise：人手必备跨境转账神器**](https://wise.com/invite/ihpc/chengangl)   
-## 🏦 [**iFast：英国银行可身份证开户**](https://www.ifastgb.com/tellafriend/chengangl82)  
-## 🔴 [**IBKR：盈透美国在线券商标杆**](https://ibkr.com/referral/chengang564)  
+### 🟢 [**Wise：人手必备跨境转账神器**](https://wise.com/invite/ihpc/chengangl)   
+### 🏦 [**iFast：英国银行可身份证开户**](https://www.ifastgb.com/tellafriend/chengangl82)  
+### 🔴 [**IBKR：盈透美国在线券商标杆**](https://ibkr.com/referral/chengang564)  
 
 
 ### 💳 虚拟卡与加密支付
