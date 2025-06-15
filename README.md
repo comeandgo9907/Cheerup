@@ -15,7 +15,7 @@
 ## 💳 虚拟卡与加密支付
 
 #### 💎 [**Wildcard**](https://yeka.ai/i/LANGKE)     
-👆🏻美区支付一网打尽  AI订阅支付专家
+          👆🏻美区支付一网打尽  AI订阅支付专家
   
 #### ✅ [**BIngoCard：虚拟美卡轻松充值  wise myfin 不在话下**](https://m.bebingocard.com/login?code=LANGKE)  
   
